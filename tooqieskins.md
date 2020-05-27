@@ -9,3 +9,6 @@
 
 # [vv_idke_trail](https://drive.google.com/file/d/12xHpKcdN5HNnAQnjL8JN507ZyQEEFCn-/view)
 ![vvidke](https://skins.osuck.net/uploads/posts/2019-07/1561977645_screenshot5556.jpg)
+
+# [Gayzmcgee skin](https://tqe.s-ul.eu/79oo0pyj)
+![gayz](https://osu.ppy.sh/ss/14979959/cf8a)
