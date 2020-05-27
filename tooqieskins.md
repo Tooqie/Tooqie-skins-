@@ -6,3 +6,6 @@
 
 # [Rafis HDDT skin](https://drive.google.com/file/d/1aJh7apqZTrXvWkwNVhzBfIVcG821hxx2/view)
 ![rafis](https://osu.ppy.sh/ss/14979938/2178)
+
+# [vv_idke_trail](https://drive.google.com/file/d/12xHpKcdN5HNnAQnjL8JN507ZyQEEFCn-/view)
+![vvidke](https://skins.osuck.net/uploads/posts/2019-07/1561977645_screenshot5556.jpg)
