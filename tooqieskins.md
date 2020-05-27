@@ -12,3 +12,6 @@
 
 # [Gayzmcgee skin](https://tqe.s-ul.eu/79oo0pyj)
 ![gayz](https://osu.ppy.sh/ss/14979959/cf8a)
+
+# [boop](https://tqe.s-ul.eu/7ks2VPTE)
+![boop](https://osu.ppy.sh/ss/14979972/1d2d)
