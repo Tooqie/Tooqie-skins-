@@ -1,3 +1,6 @@
+# [BubbleSkin+HappyStick+Edit+Yellow+Cursor](https://tqe.s-ul.eu/qEgfErFY)
+![bubble](https://osu.ppy.sh/ss/16302642/db8b)
+
 # [owo tuna lite tooqie edit](https://tqe.s-ul.eu/GBlp14GV)
 ![owotuna](https://osu.ppy.sh/ss/15558630/c13f) 
 
